@@ -1,2 +1,2 @@
 # instashell
-Instagram Brute Forcer without password limit
+Instagram Brute Forcer without password hack 
